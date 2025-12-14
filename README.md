@@ -1,1 +1,2 @@
 # Retrato-con-luz-posterior-de-efecto
+Este retrato se caracteriza por su iluminación claramente posterior, que produce un efecto de contraluz. La luz está a la altura de la cabeza, y la parte de la cara dirigida hacia el objetivo está en la sombra, con la única claridad que da el reflejo de las paredes o una pantalla reflectante. El fondo oscuro aumenta el efecto, lo dramatiza. Una línea de luz destaca el perfil, y los cabellos aparecen muy claros con la luz directa.
